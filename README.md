@@ -8,5 +8,5 @@ College of Science and Technology I would like to welcome you to the College of 
 ![image](https://github.com/user-attachments/assets/06438eb1-0ce1-409a-95bf-5b7814796de4)![image](https://github.com/user-attachments/assets/de44baa1-e486-4cf6-9cd0-d35fd8606ef6)
 
 
-  
+# Thank You & Best Wish
 # Chhorm Sreymean
